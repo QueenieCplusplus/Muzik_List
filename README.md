@@ -117,6 +117,10 @@ https://www.youtube.com/watch?v=7bOlqN1qbDw
 
 # Beethoven
 
+https://www.youtube.com/watch?v=obDlCfQnF6A
+
+Piano Sonata No.30 (Luv Plus+)
+
 https://www.youtube.com/watch?v=0BLaLv-jPQU
 
 Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 "Moonlight Sonata" (Luv Plus)
