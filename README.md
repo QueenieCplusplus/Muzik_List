@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=NskI2cR09H8 (Piano Blues)
 
 --------------------------------------------------------------
 
-# Edward Grieg (Luv Plus)
+# Edward Grieg (Luv Plus) 被譽為北歐蕭邦
 
 https://www.youtube.com/watch?v=R_5AwR27wj4
 
