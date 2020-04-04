@@ -4,7 +4,7 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 # Sonate pour clarinette et piano
 
-https://www.youtube.com/watch?v=y0iRkE1CiXg
+https://www.youtube.com/watch?v=7r-5NXj2DJA (II. Romanza (Très calme))
 
 --------------------------------------------------------------
 
