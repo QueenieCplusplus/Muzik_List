@@ -280,6 +280,10 @@ Tchaikovsky - The Seasons, Op. 37a: No. 6, June. Barcarolle
 
 Tchaikovsky - The Seasons, Op. 37a: No. 12, December. Christmas 
 
+https://www.youtube.com/watch?v=st6Oz1bATts
+
+Tchaikovsky - Canzonetta
+
 -------------------------------------------------------------------------
 
 Galuppi - Piano Sonata No. 5 in C Major: I. Andante 
