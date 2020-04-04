@@ -174,6 +174,10 @@ Nuvole Bianche (Luv)
 -------------------------------------------------------------------------
 Bach
 
+https://www.youtube.com/watch?v=kYDoGfTqLJw
+
+BachL Cello Suite No.6 in D Major
+
 Bach: Notebook for Anna Magdalena, Minuet in G major, BWV Ahn. 114
 
 Bach: Harpsichord Invention No. 1 in C major, BWV 772 
